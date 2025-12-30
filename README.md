@@ -1,0 +1,1 @@
+# retailscan-privacy
